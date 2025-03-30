@@ -1,6 +1,7 @@
 ![alt text](thumbnail.png)
 
 [Part 1](https://www.youtube.com/watch?v=48A-E-xJPMo)
+[Part 2](https://www.youtube.com/watch?v=9kkcaPiNjHU)
 
 [Discord and more](https://www.andreastrolle.com/)
 
